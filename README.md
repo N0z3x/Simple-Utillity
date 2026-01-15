@@ -20,5 +20,11 @@ you might be in danger
 
 
 
+# Other
+You can`t ignore this one. To create this app will take so much time, u will see if ill upload app
+
+
+
+
 
 By N0z3x <3
